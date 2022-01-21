@@ -1,4 +1,4 @@
-🖖 Hi, I’m @0xDarni
+🖖 Hi, I’m [@0xDarni](https://twitter.com/0xDarni)
 
 <!---
 - 👀 I’m interested in ...
